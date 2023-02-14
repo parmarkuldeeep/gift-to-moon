@@ -1,5 +1,4 @@
-## Happy Valentine's Day, Rivera!
+## Happy Valentine's Day, arcili!
 
-A Valentine's Day gift to my sweetheart Rivera.
+A Valentine's Day gift to my sweetheart arcili.
 
-[Click here](https://windzlife.github.io/gifts-to-rivera-2019/index.html)
